@@ -1,0 +1,1 @@
+This website has any beauty except owner.
