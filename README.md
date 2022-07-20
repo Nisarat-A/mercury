@@ -1,0 +1,2 @@
+# mercury
+HELLOWORLD NOEYISCUTE300%
